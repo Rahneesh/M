@@ -1,1 +1,1 @@
-I am Rahneesh M. This is my first personal website. Lol
+This is my first personal website.
